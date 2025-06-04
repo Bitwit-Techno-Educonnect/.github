@@ -68,7 +68,7 @@ Whether you're building your next-gen app, automating your business workflows, o
 
 ---
 
-## 📍 Headquartered in Jodhpur,Rajasthan, India | Serving Globally 🌍
+## 📍 Headquartered in Jodhpur, Rajasthan, India | Serving Globally 🌍
 
 > *We believe in legacy. We believe in innovation. We build with intent.*
 
