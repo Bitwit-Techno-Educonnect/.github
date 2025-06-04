@@ -1,4 +1,4 @@
-# 🚀 Bitwit Techno – Innovating the Future of Digital Transformation
+# 🚀 Bitwit Techno - Educonnect – Think Different
 
 **Visit us:** [bitwittechno.com](https://bitwittechno.com)
 
@@ -6,7 +6,7 @@
 
 ## 🌟 Who We Are
 
-At **Bitwit Techno**, we don’t just build technology — we engineer digital experiences. With a keen eye for innovation and a deep respect for tradition, we provide IT services, digital solutions, and tech training that empower businesses and individuals to grow, scale, and thrive in the modern era.
+At **Bitwit Techno - Educonnect**, we don’t just build technology — we engineer digital experiences. With a keen eye for innovation and a deep respect for tradition, we provide IT services, digital solutions, and tech training that empower businesses and individuals to grow, scale, and thrive in the modern era.
 
 Whether you're a startup, SME, or an enterprise — we are your strategic tech partner.
 
@@ -34,7 +34,7 @@ Whether you're a startup, SME, or an enterprise — we are your strategic tech p
 
 ---
 
-## 🔥 Why Choose Bitwit?
+## 🔥 Why Choose Bitwit Techno - Educonnect?
 
 - ✅ Client-First Approach: We align tech with your **business goals**.
 - 🔧 Tailor-Made Solutions: No cookie-cutter templates — only **custom code**.
@@ -60,15 +60,15 @@ Whether you're a startup, SME, or an enterprise — we are your strategic tech p
 
 ## 🤝 Let’s Collaborate
 
-Whether you're building your next-gen app, automating your business workflows, or upskilling your tech team — **Bitwit Techno is your partner in digital success**.
+Whether you're building your next-gen app, automating your business workflows, or upskilling your tech team — **Bitwit Techno - Educonnect is your partner in digital success**.
 
-📩 Contact us at: [info@bitwittechno.com](mailto:info@bitwittechno.com)
+📩 Contact us at: [hello@bitwittechno.com](mailto:hello@bitwittechno.com)
 
 🌐 Website: [https://bitwittechno.com](https://bitwittechno.com)
 
 ---
 
-## 📍 Headquartered in Ahmedabad, India | Serving Globally 🌍
+## 📍 Headquartered in Jodhpur,Rajasthan, India | Serving Globally 🌍
 
 > *We believe in legacy. We believe in innovation. We build with intent.*
 
